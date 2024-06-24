@@ -1,0 +1,1 @@
+# Fuzzy_Mamdani_Disease-Eye
